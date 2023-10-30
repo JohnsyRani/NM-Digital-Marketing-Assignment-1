@@ -6,7 +6,7 @@ MentalFortify Blog - 1
 [Your link Here](https://johnsyrani21.blogspot.com/2023/09/parenting-with-heart.html)
 
 
-MentalFortify Brand Business Page and Facebook post - 2
+MentalFortify Brand Business Page and Facebook Post - 2
 [Your link Here](https://www.facebook.com/profile.php?id=61552857722465&mibextid=ZbWKwL)
 
 
